@@ -1,3 +1,2 @@
-👋 Hallo, I’m @NeeBalanz
-I am from Australia. 
-I enjoy coding, conlanging, badminton and soccer.
+👋 Hallo, I’m Latansc@.
+I enjoy conlanging and volleyball.
